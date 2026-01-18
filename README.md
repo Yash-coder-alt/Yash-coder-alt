@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Data Analyst Projects<br>🤝 I’m looking for a job as a Data Analyst<br>🤝 I’m looking for a job as a SOC Analyst L1<br>🤝 I’m currently working in a Digital Marketing Firm<br>🌱 I’m currently learning Network Security Concepts<br>🌱 I’m currently learning SEO<br>🌱 I’m currently learning Meta & Google ADS<br>💬 Ask me about Data Analytics<br>💬 Ask me about Cybersecurity<br>💬 Ask me about SEO<br>💬 Ask me about Music
+🔭 I’m currently working on Data Analyst Projects<br>🤝 I’m looking for a job as a Data Analyst , SOC Analyst L1 <br><br>🤝 I’m currently working in a Digital Marketing Firm<br>🌱 I’m currently learning Network Security Concepts<br>🌱 I’m currently learning SEO<br>🌱 I’m currently learning Meta & Google ADS<br>💬 Ask me about Data Analytics<br>💬 Ask me about Cybersecurity<br>💬 Ask me about SEO<br>💬 Ask me about Music
 
 
 ## 🌐 Socials:
